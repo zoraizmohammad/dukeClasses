@@ -1,0 +1,1 @@
+You are viewing and using this at your own risk. I am not liable for any personal misjudgments on your part, and reading this will make you culpable for any cheating or copying that may occur. Please refer to Duke Student Handbook if you think you in violation.
